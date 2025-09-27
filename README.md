@@ -1,2 +1,2 @@
 # zametochki
-no no no 
+just notes, really?
